@@ -14,8 +14,18 @@
  he him , #1 malum caedo fan , darkshippers dni!!!!
   <p align="center">
    <img src="https://64.media.tumblr.com/b342196083353a035a29315b8a970370/bea73a0bbbf1117f-33/s540x810/7210cb9cc9415832ee80fbc56c2471e25e0739eb.pnj" alt="div" width="600" title="div">
+
+
+
+<img src="https://64.media.tumblr.com/1036199994fdbebc242b62975f80a045/1087940ccbef7581-80/s400x600/8becab1e19d275afbf4fe06372a18f7018ab417d.pnj" alt="bullet" title="Just the tip, I promise" width="115"><a href="https://www.last.fm/user/cross40">![](https://lastfm-recently-played.vercel.app/api?user=cross40&width=300&count=1&bg_color=3474E2&header_style=none)</a><img src="https://64.media.tumblr.com/cf6e08a04090b6277d90187fee70ee58/1087940ccbef7581-e7/s400x600/a0e0dc65e6b18d7ccee63e347635d4d50cf8fd44.pnj" alt="bullet" title="Just the tip, I promise" width="115">
+
+<br>
+<br>
      <div align="center">
     <img src="https://media1.tenor.com/m/Eo42bqOFKTsAAAAC/boltgun-warhammer.gif" alt="div" width="500" title="div">
+       <br>
+       <br>
+       <br>
   <div align="center">
 
   <details>
